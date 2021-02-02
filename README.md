@@ -1,0 +1,3 @@
+# wa-spam
+JANGAN ROCODE
+CAPE GW BUATNYA
